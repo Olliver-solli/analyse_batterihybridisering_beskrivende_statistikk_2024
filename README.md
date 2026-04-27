@@ -1,0 +1,1 @@
+# analyse_batterihybridisering_beskrivende_statistikk_2024
